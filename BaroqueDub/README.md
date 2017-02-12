@@ -22,7 +22,7 @@ http://www.tweakheadz.com/how_to_get_started_with_midi.html
 ---------
 shout out
 ---------
-Originals were sourced from the excellent Jamaican Riddim Directory [http://www.jamrid.com/Riddims.htm] where you'll find many more audio samples and information.
+Originals were sourced from the excellent Jamaican Riddim Directory [http://www.jamrid.com/Riddims.htm] where you'll find many more audio samples and detailed information. A treasure trove for all bassheads and reggae fans. With due thanks to *Puppa Vlado* for his dedication to the history and dissemination of reggae music.
 
 With much repect to the original artists and producers.
 Your music is an inspiration to the world. One love.
