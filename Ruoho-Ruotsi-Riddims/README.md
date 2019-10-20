@@ -8,7 +8,7 @@ Go on an excursion, pick a riddim, make a version!
 ### Riddims
 * [Bentos](https://www.discogs.com/Lumineon-Bentos/release/4127752) (2012)
 * [Exact Found](https://www.discogs.com/Tomas-Jirku-Ruoho-Ruotsi-Clear-Cut/release/3301968) (2011)
-* [A Little Haiku](https://www.discogs.com/Ruoho-Ruotsi-Featuring-Jenn-Mierau-A-Little-Haiku/release/2934228) (2011)
+* [A Likkle Haiku](https://www.discogs.com/Ruoho-Ruotsi-Featuring-Jenn-Mierau-A-Little-Haiku/release/2934228) (2011)
 * [Backoff](https://www.discogs.com/DubLoner-Isaac-H-Selassie-The-FightSpirit/release/2340523) (2010)
 
 --
